@@ -6,7 +6,7 @@
 
 👨‍💻 All of my projects are available at #
 
-📫 How to reach me ms4776425@gmail.com
+📫 How to reach me mohammedsamir506@gmail.com
 
 📄 Know about my experiences #
 
