@@ -7,7 +7,6 @@
 👨‍💻 All of my projects are available at #
 
 📫 How to reach me mohammedsamir506@gmail.com
-
 📄 Know about my experiences #
 
 🔗 Connect with me:
